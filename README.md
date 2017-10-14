@@ -1,0 +1,1 @@
+# lolupdater_com_redirect
